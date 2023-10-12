@@ -2,6 +2,7 @@
 ![](https://github-profile-trophy.vercel.app/?username=musaddique333&theme=discord&no-frame=false&no-bg=false&margin-w=4)
 
 # Hello, I'm Mussaddique! 👋
+[![An image of @musaddique333's Holopin badges, which is a link to view their full Holopin profile](https://holopin.me/holygrimm)](https://holopin.io/@holygrimm)
 
 I'm a tech enthusiast and machine learning aficionado on a mission to explore the fascinating world of artificial intelligence. I'm here to share my journey and collaborate on exciting projects. 🤖
 
