@@ -7,10 +7,9 @@
 I'm a tech enthusiast and machine learning aficionado on a mission to explore the fascinating world of artificial intelligence. I'm here to share my journey and collaborate on exciting projects. 🤖
 
 🔧 Currently, my focus is on:
-- Machine learning
-- Neural networks
-- Deep learning
-- Tools like TensorFlow, Keras, OpenCV, and NLP
+- Dev Ops Practices
+- Cloud Computing
+- Deep learning and LLMs
 
 I'm passionate about pushing the boundaries of what AI can achieve.
 
