@@ -67,7 +67,6 @@
 ## ⚡️ **𝙵𝚞𝚗 𝙵𝚊𝚌𝚝:**
 𝙸’𝚖 𝚍𝚛𝚒𝚟𝚎𝚗 𝚋𝚢 𝚊 𝚏𝚊𝚜𝚌𝚒𝚗𝚊𝚝𝚒𝚘𝚗 𝚠𝚒𝚝𝚑 𝙰𝙸 𝚊𝚗𝚍 𝚖𝚊𝚌𝚑𝚒𝚗𝚎 𝚕𝚎𝚊𝚛𝚗𝚒𝚗𝚐, 𝚋𝚎𝚕𝚒𝚎𝚟𝚒𝚗𝚐 𝚝𝚑𝚊𝚝 𝚝𝚑𝚎 𝚏𝚞𝚝𝚞𝚛𝚎 𝚒𝚜 𝚏𝚘𝚛𝚐𝚎𝚍 𝚝𝚑𝚛𝚘𝚞𝚐𝚑 𝚍𝚊𝚝𝚊 𝚊𝚗𝚍 𝚊𝚕𝚐𝚘𝚛𝚒𝚝𝚑𝚖𝚜. 𝙻𝚎𝚝'𝚜 𝚋𝚞𝚒𝚕𝚍 𝚝𝚑𝚊𝚝 𝚏𝚞𝚝𝚞𝚛𝚎 𝚝𝚘𝚐𝚎𝚝𝚑𝚎𝚛 𝚊𝚗𝚍 𝚖𝚊𝚔𝚎 𝚊 𝚖𝚎𝚊𝚗𝚒𝚗𝚐𝚏𝚞𝚕 𝚒𝚖𝚙𝚊𝚌𝚝! 🌟
 
-# 𝙷𝚎𝚕𝚕𝚘, 𝙸'𝚖 𝙼𝚞𝚜𝚊𝚍𝚍𝚒𝚚𝚞𝚎! 👋
 [![An image of @musaddique333's Holopin badges, which is a link to view their full Holopin profile](https://holopin.me/musaddique333)](https://holopin.io/@musaddique333) 
 
 ## 📊 𝙶𝚒𝚝𝙷𝚞𝚋 𝚂𝚝𝚊𝚝𝚜:
