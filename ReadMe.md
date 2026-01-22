@@ -25,8 +25,3 @@
 </div>
 
 <h2>C++ is the 🐐</h2>&nbsp<p>lets debate..</p>
-
-## 📊 𝙶𝚒𝚝𝙷𝚞𝚋 𝚂𝚝𝚊𝚝𝚜:
-<div align="center">
-  <img src="https://github-readme-streak-stats.herokuapp.com/?user=musaddique333&theme=dark&hide_border=false" alt="GitHub Streak Stats"/>
-</div>
